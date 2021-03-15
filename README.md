@@ -1,2 +1,3 @@
 # hello-world
 just getting started
+hi i am jatin gandhi and i am a software developer and i want to go abroad and earn lots of money...so that i donot have to ask to someone for money...
